@@ -1,1 +1,0 @@
-# Pagina-de-receita-rocketseat
